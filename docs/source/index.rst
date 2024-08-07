@@ -1,4 +1,4 @@
-Taixiulucky - Nhà Cái Hàng Đầu Châu Á Với Đa Dạng Trò Chơi Và Dịch Vụ Hàng Đầu
+Taixiulucky - taixiulucky.vip - Nhà Cái Hàng Đầu Châu Á Với Đa Dạng Trò Chơi Và Dịch Vụ Hàng Đầu
 ===================================
 
 `Taixiulucky <https://taixiulucky.vip/>`_, thành lập vào năm 2016, là một trong những nhà cái uy tín hàng đầu tại châu Á, với giấy phép hoạt động do Chính phủ Philippines cấp. Đặt trụ sở chính tại Manila và sở hữu mạng lưới hơn 10.000 đại lý trên toàn châu Á, Taixiulucky nhanh chóng khẳng định vị thế của mình trong lĩnh vực giải trí trực tuyến.
